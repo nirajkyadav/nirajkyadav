@@ -44,4 +44,4 @@ Primary Researcher|Under supervision of Dr. Kshitiz C. Shrestha | Submitted to A
 
 *I am actively seeking PhD opportunities in computational, and/or experimental structural and earthquake engineering where I can deploy modern data science and simulation tools to build safer, smart infrastructure.*
 
-📫 **Reach out at:** [078bce094.niraj@pcampus.edu.np](mailto:078bce094.niraj@pcampus.edu.np) | [LinkedIn](http://linkedin.com/in/nirajkyadav078bce094) | [CV](https://drive.google.com/file/d/1Tjm1NfuUM1KDLoCof__qCMO-xJB2tx_h/view?usp=share_link)
+📫 **Reach out at:** [078bce094.niraj@pcampus.edu.np](mailto:078bce094.niraj@pcampus.edu.np) | [yniraj327@gmail.com](mailto:yniraj327@gmail.com) | [LinkedIn](http://linkedin.com/in/nirajkyadav078bce094) | [CV](https://drive.google.com/file/d/1Tjm1NfuUM1KDLoCof__qCMO-xJB2tx_h/view?usp=share_link)
