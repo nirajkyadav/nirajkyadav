@@ -32,6 +32,6 @@ Please feel free to view my CV for more details
     
     Primary Researcher | Submitted to Advances in Structural Engineering (ASE-26-0085)
 
-*I am actively seeking PhD opportunities in my interest areas.*
+*I am currently seeking PhD opportunities in my interest areas.*
 
 📫 **Reach out at:** [yniraj327@gmail.com](mailto:yniraj327@gmail.com) | [078bce094.niraj@pcampus.edu.np](mailto:078bce094.niraj@pcampus.edu.np) | [LinkedIn](http://linkedin.com/in/nirajkyadav078bce094) | [CV](https://drive.google.com/file/d/1Tjm1NfuUM1KDLoCof__qCMO-xJB2tx_h/view?usp=share_link)
